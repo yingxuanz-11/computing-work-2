@@ -6,4 +6,8 @@ It was a sunny day (so *cliche*). The class was having Chinese lesson. When the 
 
 We quickly changed **ahem ahem** quickly and then rushed **ahem ahem** to the parade square.
 
-To our surprise, we did not see Ms Lee waiting for us there. Instead, she lead us to the open space outside the library.
+To our surprise, we did not see Ms Lee waiting for us there. Instead, she lead us to the open space outside the library. She asked us to sit in register number order and then told us "We will be doing some simple stretching here today!"
+
+*Me being like umm with all the people looking at us? Ok...?*
+
+
