@@ -2,6 +2,7 @@
 **Hello world!** I am Yan Ching from Dunman High School!
 
 My Hobbies:
+* Listening to kpop
 * Watching anime
 * Sleeping
 * Playing piano
