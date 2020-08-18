@@ -10,4 +10,4 @@ To our surprise, we did not see Ms Lee waiting for us there. Instead, she lead u
 
 *(Me being like umm with all the people looking at us? Ok...?)*
 
-And we started our stretching. Ms Lee told us to count to 10 and asked us to count in other languages (Like Japanese and Chinese etc.). After a while, Ms Le suddenly said something that made us really freaked out (or just made things really awkward).
+And we started our stretching. Ms Lee told us to count to 10 and asked us to count in other languages (Like Japanese and Chinese etc.). After a while, Ms Lee suddenly said something that made us really freaked out (or just made things really awkward).
