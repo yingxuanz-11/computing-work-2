@@ -1,5 +1,5 @@
 # Hello world!
-**Hello world!** I am Yan Ching from Dunman High School!
+**Hello world!** I am Yan Ching from [Dunman High School](http://dunmanhigh.moe.edu.sg)!
 
 My Hobbies:
 * Listening to kpop
