@@ -24,7 +24,7 @@ We went off for recess and felt that it was one of the most awkward lessons ever
 
 *Omake*
 
-No omake sorry!
+No omake sorry (I can't think of one!)!
 
 **Word count: 426**
 
@@ -33,5 +33,7 @@ No omake sorry!
 So...I just wanna say thank you to Ms Lee for supporting us and making Pe lessons so interesting! I really enjoy your lessons! Thank you for encouraging us (me) and giving me advice when I really need it! Stay safe and Happy Teachers' Day!
 
 Yan Ching 袁靖
+
 Dunman High School 德明政府中学
+
 2020 1 HILLYSE 😊😊
