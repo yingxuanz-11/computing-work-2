@@ -26,5 +26,6 @@ We went off for recess and felt that it was one of the most awkward lessons ever
 
 No omake sorry!
 
-**Word count: 426
-Next up: You choose!**
+**Word count: 426**
+
+**Next up: You choose!**
