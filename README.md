@@ -1,4 +1,7 @@
 # Hello world!
+
+Read this before looking at any of my work 👀
+
 **Hello world!** I am Yan Ching from [Dunman High School](http://dunmanhigh.moe.edu.sg)!
 
 My Hobbies:
