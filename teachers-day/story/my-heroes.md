@@ -1,4 +1,4 @@
 # My heroes
 
-This is based on a song called 'Hero too' by Kyoka Jiro it's really nice 🤩
+This is based on a song called 'Datte atashino hero (Because you're my hero)' by LiSA it's really nice 🤩
 
