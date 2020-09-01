@@ -8,8 +8,8 @@ My Hobbies:
 * Playing piano
 
 My education:
-* Ngee Ann Primary School
-* Dunman High School
+* [Ngee Ann Primary School](http://ngeeannpri.moe.edu.sg)
+* [Dunman High School](http://dunmanhigh.moe.edu.sg)
 
 *My stories*
 
