@@ -14,3 +14,5 @@ My education:
 *My stories*
 
 These are my stories! I am looking forward to all your comments! Thank you! :)
+
+The awkward PE lesson: https://github.com/yanjinger0207/computing-work/blob/master/teachers-day/story/the-awkward-pe-lesson.md
