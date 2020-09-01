@@ -6,7 +6,7 @@ It was a sunny day (so *cliche*). The class was having Chinese lesson. When the 
 
 We quickly changed **(ahem ahem)** and then rushed **(ahem ahem)** to the parade square.
 
-To our surprise, we did not see Ms Lee waiting for us there. Instead, she led us to the open space outside the library. She asked us to sit in register number order and then told us "We will be doing some simple stretching here today!"
+To our surprise, we did not see Ms Lee waiting for us there. Instead, she led us to the open space outside the library as it was raining. She asked us to sit in register number order and then told us "We will be doing some simple stretching here today!"
 
 *(I was like umm with all the people looking at us? Ok...?)*
 
@@ -18,7 +18,7 @@ When our class heard that, we felt even more embarrassed (sorry 😅😅) and ha
 
 So, after that, Ms Lee asked us to count with our sexy (?!) voice and our cartoon voice. We felt really weird but at least that we shamed ourselves together! 🤩🤩 The students from other classes who walked past would also look at us with a confused expression. Mdm Loh also stretched with us, and we had a lot (?) of fun!
 
-Soon, we had to do jumping jacks (I'm not really going to talk about this that much) we had to do it many many times cos we were not in sync but we were still let off for recess. Ms Lee said that her standards were that everyone has to be in sync when doing the jumping jacks and counting.
+Soon, we had to do jumping jacks (I'm not really going to talk about this that much) we had to do it many many times cos we were not in sync but we were still let off for recess. Ms Lee said that her standards were that everyone has to be in sync when doing the jumping jacks and counting loudly.
 
 We went off for recess and felt that it was one of the most awkward lessons ever! 
 
