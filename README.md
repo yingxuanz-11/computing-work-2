@@ -1,6 +1,6 @@
 # Hello world!
 
-⬇ Read this before looking at any of my work 👀 ⬇
+Author-san's notes: If you see at the end of my story 'Next chapter: You choose!' you can comment below my story!
 
 **Hello world!** I am Yan Ching from [Dunman High School](http://dunmanhigh.moe.edu.sg)!
 
